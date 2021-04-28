@@ -1,0 +1,2 @@
+# estudio
+aprender el manejo
